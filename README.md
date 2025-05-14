@@ -1,2 +1,2 @@
-# attachment of year 2 students pursuing bachellors ion it
+# attachment of year 2 students pursuing bachellors in I.T
 very interesting
